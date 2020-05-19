@@ -8,8 +8,6 @@ Here to fight arachnophobia and tell you how cool spiders are !
 No, that's not the next webinar about.
 
 ## I also appreciate everyone who has contributed here
-Naomi Penfold
-Anja Stares
-Miranda Nye
+Naomi Penfold, Anja Stares, Miranda Nye
 
 * Vinodh
