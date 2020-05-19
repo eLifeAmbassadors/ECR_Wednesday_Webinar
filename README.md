@@ -3,6 +3,6 @@
 Welcoming feedback and suggestions for improving #ECRWednesday webinar. 
 
 ## I also appreciate everyone who has contributed here
-Naomi Penfold, Anja Stares, Miranda Nye
+@npscience , Anja Stares, Miranda Nye, @lottedewinde
 
 * Vinodh
